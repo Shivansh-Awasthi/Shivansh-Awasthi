@@ -1,5 +1,5 @@
 # 💫 About Me:
-🛜 currently studying<br>👨🏼‍💻 just checkout my website toxicgames.in<br>
+🛜 currently studying<br>👨🏼‍💻 just checkout my website: [Toxic Games](https://toxicgames.in/)<br>
 
 
 ## 🌐 Socials:
